@@ -1,0 +1,1 @@
+You can make this easy homemade cake recipe in cooker as well! A homemade cake is definitely tastier than the store bought one. But many people believe that making a cake at home is difficult. The best thing about this cake is that you can add any flavour of your choice to suit your palate. 
